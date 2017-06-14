@@ -1,2 +1,0 @@
-# Danli
-My new lifestyle
